@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-SAMK050104HNLCDVA3
+SAMK050104HNLCDVA3
